@@ -7,4 +7,4 @@
 - 📫 How to reach me: edvinasty@gmail.com.
 
 ## Connect with Me
-- LinkedIn: [Edvinas Burba](https://www.linkedin.com/in/edvinas-burba-9b7bb523b/)
+- LinkedIn: [Edvinas Burba](https://www.linkedin.com/in/edvinasburba/)
